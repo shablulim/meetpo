@@ -1,7 +1,7 @@
 
 General description
 
-help strangers peuples to meat  talk and know  each other at side of meetups and other events 
+help strangers peoples to meat  talk and know  each other at side of meetups and other events 
 
 #####
 screens
